@@ -6,3 +6,4 @@ Center for Racial Justice in Education, https://centerracialjustice.org/.
 INFOGRAPHIC Structural Racism at a Glance: Education, June 10, 2020, https://www.eraseracismny.org/resource-center?start=80
 Porteulabaum, Nina L. “Barriers to Success: A Qualitative Study Of African American And Latino Male Students” Innovation Showcase vol.11, no. 6. June 2016 
 https://www.league.org/innovation-showcase/barriers-academic-success-qualitative-study-african-american-and-latino-male (Accessed: December 11 2022.)
+Top black student organizations and associations. Black Scholarships | African American Scholarships | Black Colleges. (n.d.). Retrieved December 11, 2022, from https://www.blackscholarships.org/p/black-student-organizations.html 
