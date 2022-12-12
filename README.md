@@ -1,3 +1,4 @@
 # ISS210FinalTemplate
 frontimage.png:  He, Jing. “Supporting an Equal Education for Everyone… - the Future of Quality Education.” Medium, 7 Jan. 2022, medium.com/the-future-of-quality-education/supporting-an-equal-education-for-everyone-40da4de5d56f.
 https://www.usnews.com/news/blogs/data-mine/2015/01/28/us-education-still-separate-and-unequal 
+image 3: "PERCEPTIONS OF ACADEMIC ACHIEVEMENT AND EDUCATIONAL OPPORTUNITIES AMONG BLACK AND AFRICAN AMERICAN YOUTH." George, J. (2021, September 21). Critical race theory isn't a curriculum. it's a practice (opinion). Education Week. Retrieved December 11, 2022, from https://www.edweek.org/leadership/opinion-critical-race-theory-isnt-a-curriculum-its-a-practice/2021/05 
