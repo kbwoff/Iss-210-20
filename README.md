@@ -4,3 +4,5 @@ https://www.usnews.com/news/blogs/data-mine/2015/01/28/us-education-still-separa
 image 3: "PERCEPTIONS OF ACADEMIC ACHIEVEMENT AND EDUCATIONAL OPPORTUNITIES AMONG BLACK AND AFRICAN AMERICAN YOUTH." George, J. (2021, September 21). Critical race theory isn't a curriculum. it's a practice (opinion). Education Week. Retrieved December 11, 2022, from https://www.edweek.org/leadership/opinion-critical-race-theory-isnt-a-curriculum-its-a-practice/2021/05 
 Center for Racial Justice in Education, https://centerracialjustice.org/. 
 INFOGRAPHIC Structural Racism at a Glance: Education, June 10, 2020, https://www.eraseracismny.org/resource-center?start=80
+Porteulabaum, Nina L. “Barriers to Success: A Qualitative Study Of African American And Latino Male Students” Innovation Showcase vol.11, no. 6. June 2016 
+https://www.league.org/innovation-showcase/barriers-academic-success-qualitative-study-african-american-and-latino-male (Accessed: December 11 2022.)
