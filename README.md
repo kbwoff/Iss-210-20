@@ -9,3 +9,4 @@ https://www.league.org/innovation-showcase/barriers-academic-success-qualitative
 Top black student organizations and associations. Black Scholarships | African American Scholarships | Black Colleges. (n.d.). Retrieved December 11, 2022, from https://www.blackscholarships.org/p/black-student-organizations.html 
 Portfolio 4 image - Hands Clip Art: Free Clip Art http://www.clipartpanda.com/clipart_images/free-clip-art-3134924
 Youtube.png: Thomas_BLC_Editor. “Race Equality in Education Group - Bristol Learning City.” Bristol Learning City, 12 July 2019 
+image 6: https://publichealth.wustl.edu/wp-content/uploads/2020/06/hand-1917895_1920.png. Institue for Public Health. "Racial Equity."
